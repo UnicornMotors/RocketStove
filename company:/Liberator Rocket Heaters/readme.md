@@ -8,3 +8,6 @@ Review:
 - [Liberator Rocket Stove -- Hyper Efficient, USA Made Wood Burning Stove / Mass Heater](https://youtu.be/RZCa5BpE7Xc)
 - [1752 Stop The Press - The Liberator Is Here - The Stove To End All Stoves!](https://youtu.be/mddEzGS-y3o)
 - [EMERGENCY HEAT for Indoors: Rocket Stove Burns Pellets or Firewood? Liberator Rocket Stove](https://youtu.be/2BUa_1JuMt0)
+
+# Design:
+- [Liberator 👀 4+ Month CLEANOUT 😬](https://youtu.be/_SBHQtMkfXM)
